@@ -1,1 +1,1 @@
-This is video player for http://layarkaca21.tv
+This is video player for http://dunia21.com Layarkaca21 Lk21
